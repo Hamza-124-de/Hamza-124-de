@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Hamza-124-de
+- 👀 I’m interested in biology, math, music, and chemsetry
+- 🌱 I’m currently learning chemsetry and coding!
